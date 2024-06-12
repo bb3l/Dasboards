@@ -1,2 +1,2 @@
-# [Welcome to My Dasboard Corner!][(https://bb3l.github.io/Dasboards/)]
+# [Welcome to My Dasboard Corner!]
 
